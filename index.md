@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Cicho, cicho idą goście, drzwi otwórzcie się na oścież
 
-I'm glad you are here. I plan to talk about ...
+Będzie się działo
